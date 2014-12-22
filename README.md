@@ -36,12 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-THE
-True History of the
-Tragicke loves of
-HIPOLITO and ISABELLA
-Neapolitans.
-EnglishedLondon Printed
+
 1. To the Volume.
 
 #####Body#####
